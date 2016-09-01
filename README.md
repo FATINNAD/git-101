@@ -10,3 +10,5 @@ Apa Khabar ?
 Location : The Everly , Putrajaya
 
 3Days , 2Nights
+
+Selamat Tinggal. Bye !
