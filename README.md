@@ -8,3 +8,5 @@ Assalamualaikum
 Apa Khabar ?
 
 Location : The Everly , Putrajaya
+
+3Days , 2Nights
